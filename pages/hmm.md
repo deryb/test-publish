@@ -1,1 +1,2 @@
-- Expresses doubt. Such as when one'
+- Expresses doubt. Such as when one'd losing hope, feeling less positive than previously.
+-
